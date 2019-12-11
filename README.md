@@ -15,10 +15,21 @@
 普京的军靴           </br>
 看gejiu累婶          </br>
 日语的平假名片假名太难 </br>
+is me                  </br>
+闸总天津车牌奔驰　　　　　</br>
+闸总说有车牌的都挺牛bi  　</br>
+闸总说有车牌的都挺牛pi 　 </br>
+金星老师会说都挺bp　　　　</br>
+
+华为跟荣耀笔记本电脑Linux改Windows10　　</br>
+is me           </br>
+阴差阳错的冗余　　</br>
+is me           </br>
+is sunjingangsunjingyangsunjingyang         </br>
+习近平的厨师习近平的独立国                    </br>
 
 
-闸总说有车牌的都挺牛bi  </br>
-闸总说有车牌的都挺牛pi  </br>
-金星老师会说都挺bp
 
-华为跟荣耀笔记本电脑Linux改Windows10
+
+
+
