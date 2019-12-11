@@ -39,5 +39,9 @@ is sunjingangsunjingyangsunjingyang         </br>
 右眼一滴眼泪左眼一滴眼泪                      </br>
 低头有一滴眼泪第三滴滴成橘子汽水第二滴在旁边    </br>
 
+藕人                                </br>
+小和尚                              </br>
+十四阿哥                            </br>
+灵狐犬                              </br>
 
-
+我是闪电侠学会了钢铁侠的技术          </br>
